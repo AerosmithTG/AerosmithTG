@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on an IED
 - 📫 How to reach me pipe bomb in the mail box
 - 😄 Pronouns: he/he (when there's something strange, in the neighbourhood)
-- ⚡ Fun fact: Turbolemons is a fraud
+- ⚡ Fun fact: Turbolemons is better than me
 
 <!---
 AerosmithTG/AerosmithTG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
