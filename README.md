@@ -1,1 +1,2 @@
-- 👋 Hi, I’m @AerosmithTG
+C, C++, Python, R
+I ❤️ data analytics
